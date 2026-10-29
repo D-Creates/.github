@@ -56,6 +56,6 @@ D-CREATIONS is the studio of **Daniel Madac**, sole trader (EI) in Montpellier, 
 [Instagram](https://www.instagram.com/danielscreates/) ·
 [X](https://x.com/danielscreates) ·
 [TikTok](https://www.tiktok.com/@dcreationstiktok) ·
-[Threads](https://www.threads.com/@danielscreates) ·
+[Threads](https://www.threads.com/@dcreationsthreads) ·
 [Bluesky](https://bsky.app/profile/fablab503.bsky.social) ·
 [Facebook](https://www.facebook.com/profile.php?id=61595817996979)
